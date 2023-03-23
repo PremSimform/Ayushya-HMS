@@ -1,1 +1,1 @@
-# Ayushya-HMS-
+# Ayushya HMS
